@@ -8,4 +8,4 @@
 - 💬 Ask me about ... 
 - 📫 How to reach me: ... [LinkedIn] [https://www.linkedin.com/sasidharpunna]
 - 😄 Pronouns: ... sasi
-- ⚡ Fun fact: ... I am Indian
+- ⚡ Fun fact: ... I am an Indian
